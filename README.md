@@ -2,7 +2,7 @@
 - 👀 I’m interested in movies
 - 🌱 I’m currently learning word press
 - 💞️ I’m looking to collaborate on word press features
-- 📫 How to reach me fiszkatu@gmial.com
+- 📫 How to reach me fiszkatu@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
